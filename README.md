@@ -1,2 +1,3 @@
 # Hello-
 Just another beginner...
+But hey, trying to do anything in the beginning will be hard. It will take persistence and a sharpened mind to crack open the hard shells of difficulty, to suck upon the easiness of the task later on. 
